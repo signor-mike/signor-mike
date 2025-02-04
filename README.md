@@ -7,7 +7,7 @@
 **Do me a honor** and [download](https://play.google.com/store/apps/details?id=com.sofos.app) the app what I've put my heart and soul into: SoFoS.
 It derives from Greek and means wisdom. And it's a palindrome.
 
-**Still not sold?** [Watch](https://www.youtube.com/watch?v=i2OaUx72ODg) the video that took me 3 days to produce.
+**Still not sold?** Have a look at the [promo](https://www.youtube.com/watch?v=i2OaUx72ODg) 
 
 ---
  
